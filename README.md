@@ -1,1 +1,0 @@
-# Sumiu-do-Mapa
